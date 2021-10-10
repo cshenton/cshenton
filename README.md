@@ -1,4 +1,4 @@
-### About Me 🧑‍🚀
+### About Me 👓
 
 I build forward looking software prototypes in the games 🎮 and simulation 📈 space.
 
